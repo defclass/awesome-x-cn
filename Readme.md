@@ -5,7 +5,7 @@
   - [yihong](https://twitter.com/yihong0618)
   - [云风](https://twitter.com/cloudwu)
   - [geniusvczh](https://twitter.com/geniusvczh)
-  - [RandomAccessMemory](https://twitter.com/CaiXueYong)
+  - [蔡學鏞](https://twitter.com/CaiXueYong)
   - [TualatriX](https://twitter.com/tualatrix)
   - [Ning Sun](https://twitter.com/Sunng)
   - [laike9m](https://twitter.com/laike9m)
